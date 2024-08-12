@@ -1,3 +1,3 @@
 **Those who know...**
 
-**email:** contact [at] etenie.net
+**e-mail:** contact [at] etenie.net
